@@ -1,3 +1,3 @@
 # Trail
 
-SHREYAS SAWANT on your trail
+SHREYAS SAWANT was on your trail
